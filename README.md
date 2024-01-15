@@ -12,3 +12,6 @@ ____
 - план (в доске)
 - распечатанный документ (пояснительная записка) и сайт
 - защита (презентация, видео, новелла и демонстрация работы)
+____
+Курсовая работа:
+https://docs.google.com/document/d/1-ZxigI_bzqhKOl9EUSTIXdk_zO_1P4yYLqY5ZkfbxU8/edit?usp=drivesdk
