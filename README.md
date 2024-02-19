@@ -14,4 +14,4 @@ ____
 - защита (презентация, видео, новелла и демонстрация работы)
 ____
 Курсовая работа:
-https://docs.google.com/document/d/1JdFbJ5Vc9eURXbHI5Qw_fcLJ_yRqQgtvyVfHUz7gIf4/edit?usp=sharing
+[https://docs.google.com/document/d/1JdFbJ5Vc9eURXbHI5Qw_fcLJ_yRqQgtvyVfHUz7gIf4/edit?usp=sharing](https://drive.google.com/drive/folders/1SU6D5eU6yWvhObnAy-HaZLcopQRXeseJ?usp=sharing)https://drive.google.com/drive/folders/1SU6D5eU6yWvhObnAy-HaZLcopQRXeseJ?usp=sharing
